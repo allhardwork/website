@@ -9,11 +9,13 @@
 **[Buy the Limited Run - Rule # 7 T-Shirt for $25](https://onyerleft.store/products/all-hard-work-club-tee)**
 
 ### Limited Run - Rule # 6 Beanie
-![image](https://user-images.githubusercontent.com/76024316/149195331-9873617f-b4a7-4d66-9ab2-7f60b72f0e91.png)
+![image](https://user-images.githubusercontent.com/76024316/149197624-db3732a8-5d26-4115-8a78-1fb2b8fe26bf.png)
 
 > _Free Shipping on this Beanie, which is 100% Acrylic. Product is 12'' Knit with a 3'' Cuff._
 
 **[Buy the Limited Run - Rule # 7 T-Shirt for $15](https://onyerleft.store/products/all-hard-world-club-beanie)**
+
+###### *The [ALL HARD WORK CLUB shop](https://onyerleft.store/collections/all-hard-work-club) is in partnership with [@OnYerLeft](https://onyerleft.store/)*
 
 ------
 
