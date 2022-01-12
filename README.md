@@ -13,7 +13,7 @@
 
 **[Buy the Limited Run - Rule # 7 T-Shirt for $15](https://onyerleft.store/products/all-hard-world-club-beanie)**
 
-###### *The [ALL HARD WORK CLUB shop](https://onyerleft.store/collections/all-hard-work-club) is in partnership with [@OnYerLeft](https://onyerleft.store/)*
+###### *The [ALL HARD WORK CLUB shop](https://onyerleft.store/collections/all-hard-work-club) is in partnership with [@OnYerLeft](https://onyerleft.store/). Currently, we only ship within the United States.*
 
 ------
 
