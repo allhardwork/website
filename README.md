@@ -1,5 +1,3 @@
-# ALLHARDWORK.CLUB
-
 ## Shop
 ### Limited Run - Rule # 7 T-Shirt
 ![image](https://user-images.githubusercontent.com/76024316/149194443-062d5a66-3dc1-40b0-bfba-d2bec094c3c6.png)
