@@ -11,7 +11,7 @@
 
 > _Free Shipping on this Beanie, which is 100% Acrylic. Product is 12'' Knit with a 3'' Cuff._
 
-**[Buy the Limited Run - Rule # 7 T-Shirt for $15](https://onyerleft.store/products/all-hard-world-club-beanie)**
+**[Buy the Limited Run - Rule # 6 Beanie for $15](https://onyerleft.store/products/all-hard-world-club-beanie)**
 
 ###### *The [ALL HARD WORK CLUB shop](https://onyerleft.store/collections/all-hard-work-club) is in partnership with [@OnYerLeft](https://onyerleft.store/). Currently, we only ship within the United States.*
 
